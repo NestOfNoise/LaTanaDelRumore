@@ -1,0 +1,2 @@
+# LaTanaDelRumore
+virtual idiot
